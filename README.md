@@ -12,7 +12,6 @@
 
 ![alt text](https://i.ibb.co/4PMD5W2/Screenshot-2022-09-20-181139.png)
 ![alt text](https://i.ibb.co/nMXtv1C/Screenshot-2022-09-20-181209.png)
-![alt text](https://i.ibb.co/6HSF4ZQ/Screenshot-2022-09-20-022354.png)
 ![alt text](https://i.ibb.co/25g8FL4/Screenshot-2022-09-20-181353.png)
 
 
